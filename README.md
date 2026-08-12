@@ -5,7 +5,8 @@ I can't stay active in long conversations without a topic change nor can I alway
  <br> I've dabbled in HTML before but I'm very crappy at it and I only know the bare basics. I do think it's fun, though! CSS makes me want to kill myself though. Tbh, it's not like I'd use this site often since I just want to direct people on Ponytown to all of the platforms I'm on.<br><br> If you wanted more information, go read my pinned Tumblr post and pronouns.cc, I explain myself better on there!</br> </br>
 <img src="https://64.media.tumblr.com/166af43d2f170d547d4c1b0d0a1f9ab1/d23237db14bb130e-a9/s540x810/08ca95a36d3ed0f953987184d7a0fa0ced5b0f22.webp" alt="Yeucc's cute uncoloured drawing of Mannequin_Mark" width="500" height="500">
 </br> Hateful folks like racists, homophobes, transphobes/TERFS, acephobes and etc are unwelcome, as well as those in radqueer and transmed spaces. 
-</br> <b>Pro/darkship please do not discuss your ships and shit around me and act like a normal person around me. If you are incapable of that then do not come to my town. I'm trying to recover from the harm that your community had on my mental state when I was in a dark place, fuck off! Making myself believe I'm Mannequin Mark is better than whatever you guys got going on.<b> oh and before any normal person gets confused, I am against that stuff but I do tolerate normal conversations with them. 
+</br> <b>Pro/darkship please do not discuss your ships and shit around me and act like a normal person around me. If you are incapable of that then do not come to my town. I'm trying to recover from the harm that your community had on my mental state when I was in a dark place, fuck off! Making myself believe I'm Mannequin Mark is better than whatever you guys got going on.<b>
+</br>oh and before any normal person gets confused, I am against that stuff but I do tolerate normal conversations with them. 
 
 
 <!--
